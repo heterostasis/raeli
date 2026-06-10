@@ -25,4 +25,4 @@ Hiiiii I'm reworking my bio into github cause it was on patreon before and it lo
 
 ***
 
-My **interests** include: vns (mainly blvns, denpa & otome); shoujosei / jsmk / otoge; bl + danmei; idolge & mobage (uma, i7, twst, imas + more); gnsn + hsr; horror; seiyuu; vtubers; rpgmakers; idv; animanga; literature; pkmn; [music](https://rentry.org/gojitsutan) + singing; fashion; typology; web design; vsynths. Also here is my [kinlist]() if you even care
+My **interests** include: vns (mainly blvns, denpa & otome); shoujosei / jsmk / otoge; bl + danmei; idolge & mobage (uma, i7, twst, imas + more); gnsn + hsr; horror; seiyuu; vtubers; rpgmakers; idv; animanga; literature; pkmn; [music](https://rentry.org/gojitsutan) + singing; fashion; typology; web design; vsynths. Also here is my [kinlist](EVIL.md) if you even care
