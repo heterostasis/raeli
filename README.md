@@ -19,7 +19,7 @@ Hiiiii I'm reworking my bio into github cause it was on patreon before and it lo
 - Ship int/rp is okay but dont flirt with me as a person if we dont know each other thanks (also if I say I dont like the ship please respect that ty)
 
 ### DNI:
-- Into lolisho/pedo shit or incest
+- Into lolisho or incest
 - Minor
 - Thats literally it idgaf otherwise
 
