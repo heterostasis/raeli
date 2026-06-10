@@ -2,7 +2,7 @@
 **24 ; ask for prns (they/he is usually ok) ; white+indigenous brazilian**  
 **[1](https://hashihime-of-the-old-book-town.fandom.com/wiki/Tamamori)+[2](https://modao-zushi.fandom.com/wiki/Wei_Wuxian)**  
 **Tmasc genderfluid. T4T nblnb. Aspec.**  
-**OSDD system** 
+**OSDD system**  
 **BPD+Autism+ADHD so be nice to me thanks**  
 
 Hiiiii I'm reworking my bio into github cause it was on patreon before and it looks bad. Anyway hi my name is Raeli welcome to my twisted mind. I'm normal about everything and I love <ins>**you**</ins> ♡
