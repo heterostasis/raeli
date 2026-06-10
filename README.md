@@ -17,7 +17,7 @@ Hiiiii I'm reworking my bio into github cause it was on patreon before and it lo
 - I afk and tab out often so if you want me to see your message its better to whisper me otherwise I prob wont see it
 - I'm always down to chat / make friends esp if we have the same interests!!! feel free to talk 2 me I dont bite ^__^ (ok maybe a little but like in the nice way)
 - Ship int/rp is okay but dont flirt with me as a person if we dont know each other thanks (also if I say I dont like the ship please respect that ty)
-- Do not talk about proship/anti discourse with me I am so serious you all sound stupid as hell
+- Do not talk about proship/anti discourse with me I am so serious you all sound stupid as hell and I really really *really* dont care just stay away from me if you fit my DNI thats IT
 
 ### DNI:
 - Into lolisho or incest
