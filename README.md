@@ -23,7 +23,7 @@ Hiiiii I'm reworking my bio into github cause it was on patreon before and it lo
 - Minors
 - Thats literally it idgaf otherwise
 
-Do not talk about proship/anti discourse with me I am so serious both sides sound stupid as hell and I really really *really* dont care just stay away from me if you fit my DNI thats IT
+Do not talk about proship/anti discourse with me I am so serious both sides are stupid as hell and I really really *really* dont care just stay away from me if you fit my DNI thats IT
 
 ***
 
