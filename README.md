@@ -28,4 +28,4 @@ Do not talk about proship/anti discourse with me I am so serious both sides are 
 
 ***
 
-My **interests** include: vns (mainly blvns, denpa & otome); shoujosei / jsmk / otoge; bl + danmei; idolge & mobage (uma, i7, twst, imas + more); gnsn + hsr; horror; seiyuu; vtubers; rpgmakers; idv; animanga; literature; pkmn; [music](MUSIC.md) + singing; fashion; typology; web design; vsynths. Also here is my [kinlist](EVIL.md) if you even care
+My **interests** include: VNs (mainly blvns, denpa & otome); shoujosei / joseimuke / otomege; idolge & mobage (uma, i7, twst, imas + more); genshin + hsr; horror; bl + danmei; seiyuu; vtubers; rpgmakers; idv; animanga; literature; pkmn; [music](MUSIC.md) + singing; fashion; typology; web design; vsynths. Also here is my [kinlist](EVIL.md) if you even care
