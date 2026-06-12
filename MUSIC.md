@@ -1,9 +1,9 @@
 # Music I like! Yay
 
-**vocaloid** !! ↬ r-906 ! ♡ Iyowa ! ♡ Syudou ! ♡ niki ! ♡ Frog96 ! ♡ Haraguchi Sasuke ! ♡ mothy ! ♡ Hiiragi Kirai ! ♡ teamOS/Yamashizuku ! ♡ EZFG ! ♡ THREEE ! ♡ sasakure.UK ! ♡ Neru ! ♡ PinocchioP ! ♡ Harumakigohan ! ♡ nulut ! ♡ Wowaka ! ♡ Yunosuke ! ♡ INABAKUMORI ! ♡ MikitoP  
+**vocaloid** !! ↬ r-906 ! ♡ Iyowa ! ♡ Syudou ! ♡ niki ! ♡ Frog96 ! ♡ Haraguchi Sasuke ! ♡ mothy ! ♡ Hiiragi Kirai ! ♡ teamOS/Yamashizuku ! ♡ EZFG ! ♡ THREEE ! ♡ sasakure.UK ! ♡ Neru ! ♡ PinocchioP ! ♡ Harumakigohan ! ♡ nulut ! ♡ Wowaka ! ♡ Yunosuke ! ♡ INABAKUMORI ! ♡ MikitoP ! ♡ freaking.a lot more hell  
 
 
-**vkei** !! ↬ **_BUCK-TICK_ ! ♡ gulu gulu** ! ♡ MUCC ! ♡ lynch. ! ♡ Plastic Tree ! ♡ sick2 ! ♡ exist†trace ! ♡ DIR EN GREY ! ♡ the GazettE ! ♡ Ankimo ! ♡ a LOT more tbh
+**vkei** !! ↬ **_BUCK-TICK_ ! ♡ gulu gulu** ! ♡ MUCC ! ♡ lynch. ! ♡ Plastic Tree ! ♡ sick2 ! ♡ exist†trace ! ♡ DIR EN GREY ! ♡ the GazettE  ! ♡ more.....
 
 
 **doujin** !! ↬ **Denkare ! ♡ Ariabl'eyeS ! ♡ ABCAS / Nakae Mitsuki** ! ♡ **Hatsuki Yura** ! ♡ 753 / Haruka Shimotsuki ! ♡ Sennzai ! ♡ -LostFairy- ! ♡ Hollow Mellow ! ♡ Shoujo Byou ! ♡ love solfege' ! ♡ Rigël Theatre ! ♡ Haiiro Logic ! ♡ also a lot more fuck
